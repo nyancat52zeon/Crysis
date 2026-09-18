@@ -220,4 +220,4 @@ Crysis is available as a full free version, meaning all features and updates are
 Don't miss out on the chance to experience one of the most iconic shooters of all time. **Download Crysis today and join the battle!**
 
 ---
-**Last updated:** 2026-09-18 17:34:45 UTC
+**Last updated:** 2026-09-18 20:33:57 UTC
